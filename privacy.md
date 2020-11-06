@@ -30,7 +30,7 @@ Please note this Privacy Policy does not cover the collection of information by 
 Our advertising partners include:
 - Facebook Audience Network 
 
-## Op out right 
+## Opt out right 
 You can cease collection of new information by uninstalling our apps.
 
 ## Access and Contact
